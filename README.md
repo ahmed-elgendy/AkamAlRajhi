@@ -1,2 +1,0 @@
-# AkamAlRajhi
-web sit reelstet
